@@ -1,1 +1,0 @@
-# elektron_menyu_privacy_policy
